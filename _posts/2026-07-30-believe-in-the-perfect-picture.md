@@ -1,6 +1,21 @@
 ---
 layout: post
-title: "believe in the perfect picture "
-date: 2026-07-31T01:52:00.000+03:00
+title: I'll write here as u wanted
+date: 2026-08-01T01:21:00.000+03:00
 ---
-I'm glad I'm good at pretending on social media that everything is fine
+I’ve reread your letter so many times and wanted so badly to talk everything over with you right away, but unfortunately, you were busy or ignoring me. Your words that missing each other isn't the same as fixing what happened really stung. Love alone isn't enough to erase what hurt us. I understand that. I know trust isn't rebuilt just by saying "I miss you." It returns gradually through consistency honesty and the willingness to become someone who doesn't repeat past mistakes. When I said that sometimes I want to let go and other times I want to fight for us I didn't mean my feelings were changing. That’s not it. It’s my fear that changes. Some days, I believe with all my heart that we can find our way back to each other. On others, I’m suddenly gripped by terror: if we try to fix things, that lingering bitterness will remain, because I wouldn't know what to say to my friends, your friends, my family, or yours. Every single day I think back to that terrible first day in Rome all the things said to me and everything else and I feel awful. I remember every insult you hurled at me I understand the reason behind them but I still can't shake it. I’m afraid to think about it just plain afraid
+
+
+
+
+I understand why my words confused you, and I apologize for that. I never wanted to give the impression that I had one foot here and the other already out the door. I just wanted to be honest rather than making pretty promises I couldn't yet stand behind. I think you deserve honesty from me, even if it makes me seem indecisive. Your words about Moscow really threw me. I remember those days too. I remember looking at you and feeling that everything was unfolding so naturally, so calmly as if we had an eternity ahead of us. I never imagined we’d end up here, communicating through letters, with me blocked everywhere
+
+
+
+
+You said something else that stuck with me: that now it’s my turn to put in the effort. And I don’t dispute that. I know there are things I need to take responsibility for, and I understand that if we have any chance at all, it can’t be built on the version of me that contributed to our breakup. As for what you said about ig and tg I understand why it looked contradictory to you. But I don't think social media can ever be an accurate measure of what someone is carrying inside. A new profile pic a post a story or new followers don't tell you whether someone cried before going to sleep, whether they spent the whole day feeling empty, or whether they are simply trying to make life feel a little more normal. Those things exist on completely different levels. If someone smiles in a photo, it doesn't logically follow that they aren't suffering. If someone stays completely inactive online, it doesn't automatically mean they're suffering either. We instinctively try to connect those dots because it's the only part of another person's life we ​​can see, but those conclusions are still assumptions. I never wanted my social media to become a message about how I feel toward you or about what is happening between us. What happens on a screen and what happens inside me are not the same thing. You're absolutely entitled to tell me that my online presence made it harder for you to trust my words. I understand that feeling. But I hope you can also see that our perception of someone's social media isn't the same thing as knowing their emotional reality. Those are two very different things. From the outside, it might have looked like I was moving on, living a normal life, and even becoming happier than before. But inside, everything was different. Those actions weren't meant to tell the story of how I was doing, and they certainly weren't intended to diminish the value of what I’d written to you. I just wanted you to know that there wasn't some hidden reality behind them a reality where I was doing fine and my letters were nothing but empty words
+
+
+
+
+I don’t want to try to convince you of anything anymore. I think we’ve both reached a point where words need to become something quieter and more genuine. I simply want you to know that everything I wrote came from the very depths of my soul from that part of me that still can’t sleep at night because you’re constantly on my mind. idk what the future holds for us either but I do know for certain that meeting you changed me in a way that I believe is permanent. You are still the person I want to share everything with. Your opinion still matters more to me than anything else. I hope that, in time, you’ll see I’m trying to be someone who cherishes what we had, rather than someone who inadvertently destroys it. After all, despite everything that’s happened, my feelings for you have always been real
