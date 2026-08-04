@@ -19,3 +19,5 @@ Every piece of text just resonates so loudly lately, but instead of feeling desp
 I will write you more often once again, I want to know anything that crosses your mind, anything that you think about deeply. 
 
 я скучаю
+
+![](/assets/uploads/selfie-2025-09-09-at-05.27.13.png)
